@@ -1,4 +1,4 @@
-![](https://blinkies.cafe/b/blinkiesCafe-D4.gif)
+![](https://i.imgur.com/MefnD8H.gif)
 
 hi im cat!!! im a knight of space & a derse dreamer :B
 
