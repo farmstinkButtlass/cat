@@ -13,7 +13,7 @@ music: tally hall, miracle musical, lemon demon, will wood, toby fox, liana flor
 
 --
 
-this is pretty much it for ill add more stuff on my rentry which will hopefully be made *sooon*
+feel free to read my [rentry](https://rentry.co/sburbdotexe) :3 (or just the [pony town](https://rentry.co/screamingBanshee) part of it if youve read this)
 
 (gifs are from blinkies.cafe & hsrips.tumblr.com !!!)
 
